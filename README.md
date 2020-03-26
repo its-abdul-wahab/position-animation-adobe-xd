@@ -16,4 +16,4 @@ https://uplabs.com/abdul192
 # Hire on Fiverr 
 https://www.fiverr.com/binarycase10
 # Hire on People Per Hour
-pph.me/binarycase10
+https://www.peopleperhour.com/freelancer/design/abdul-wahab-web-designer-app-design-ui-ux-xmnmmvv
